@@ -59,4 +59,4 @@ costs far more than a wasted retention offer.
 
 ## 👤 Author
 
-*Add your name, LinkedIn, and portfolio link here.*
+*manoj Sriramappa, [LinkedIn](https://www.linkedin.com/in/manoj-sriramappa-b404621b3/)
